@@ -8,7 +8,7 @@ Przed złożeniem zamówienia skorzystaj z poniższych kodów:
 
 [Oficjalny Kod Promocyjny AliExpress](https://fas.st/VMzE90)
 
-[Oficjalny Kod Promocyjny AliExpress](https://fas.st/VMzE90)
+[Kod Promocyjny AliExpress](https://fas.st/VMzE90)
 
 - **300zł ZNIŻKI** przy zamówieniach powyżej **1767zł**
 - **180zł ZNIŻKI** przy zamówieniach powyżej **1200zł**
